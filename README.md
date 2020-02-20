@@ -1,1 +1,1 @@
-# [regestraion](https://shokr.github.io/regestraion/)
+# [regestraion](https://shokr.github.io/regestraion/index.html)
